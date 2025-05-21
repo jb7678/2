@@ -3,9 +3,9 @@
 
 ## 🌟 快速入口
 
-入口1 → https://jinbei.li
+入口1 → https://jb114.vip
  
-入口2 → https://jinbei.uk
+入口2 → https://jb217.vip
  
 TG小程序 → https://t.me/mupaibetbot
  
