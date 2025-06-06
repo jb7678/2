@@ -1,4 +1,4 @@
-# 🔥 金贝最新网址！
+# 🔥 澳门新葡京最新网址！
 🚨 收藏本页，防走丢！ 🚨
 
 ## 🌟 快速入口
@@ -9,14 +9,14 @@
  
 TG小程序 → https://t.me/mupaibetbot
  
-TG频道 → https://t.me/JB7678
+TG频道 → https://t.me/betxpj
  
-24/7客服 → https://t.me/Jbzxkf
+24/7客服 → https://t.me/betxpjkefu
 
 
 ## ⚠️ 必看提示
 
 复制链接，浏览器直达！  
 网站卡顿？换 Wi-Fi 搞定！  
-金贝实力雄厚，感谢支持！ 💪
+新葡京实力雄厚，感谢支持！ 💪
 
